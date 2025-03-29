@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @suzume9
+- 👋 Hi, I’m @suzume
 - 👀 I’m interested in games and music
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on something
